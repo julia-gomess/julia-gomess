@@ -5,5 +5,4 @@
 
 🎁 Estou interessada em livros.
 
-🎒 Estou aprendendo 14 matérias na escola.
-               
+         
